@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ritualspiritual69
-- 👀 I’m interested in ... ux design & web desinging.
+- 👀 I’m interested in ... ux design & web designing.
 - 🌱 I’m currently learning ... ux deisgn 
 - 💞️ I’m looking to collaborate on ... applications & games
 - 📫 How to reach me ... @+918928708252 | deathspell619@gmail.com
