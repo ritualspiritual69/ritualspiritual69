@@ -2,6 +2,7 @@
 - 👀 I’m interested in ... ux design & web designing.
 - 🌱 I’m currently learning ... ux deisgn 
 - 💞️ I’m looking to collaborate on ... applications & games
+Addicted to ... video games, watching web series & movies & listening movies.
 - 📫 How to reach me ... @+918928708252 | deathspell619@gmail.com
 
 <!---
