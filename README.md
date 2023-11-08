@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ritualspiritual69
-- 👀 I’m interested in ... ux design & web designing.
+- 👀 I’m interested in ... ux design & web mockup designing.
 - 🌱 I have persued ... advance graphic designing
-- 💞️ I’m looking to collaborate on ... applications & games
+- 💞️ I’m looking to collaborate on ... applications &  video games..
 - 📫 How to reach me ... @+918928708252 | deathspell619@gmail.com
 
 <!---
